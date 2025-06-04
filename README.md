@@ -1,1 +1,1 @@
-# Stydy2026
+# students2026
